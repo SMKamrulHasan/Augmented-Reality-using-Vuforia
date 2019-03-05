@@ -13,3 +13,8 @@ https://www.youtube.com/watch?v=QsL3omABs3Y&t=22s
 
 
 ![full](https://user-images.githubusercontent.com/42282006/53843405-3f283f00-3f70-11e9-8178-c410a5722610.PNG)
+
+
+![img_2934](https://user-images.githubusercontent.com/42282006/53843519-b1991f00-3f70-11e9-8dc4-27c7ed9dd51f.JPG)
+
+![img_2938](https://user-images.githubusercontent.com/42282006/53843522-b52ca600-3f70-11e9-9979-4a5a687195ce.JPG)
