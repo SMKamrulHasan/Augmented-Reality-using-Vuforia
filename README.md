@@ -10,3 +10,6 @@ https://www.youtube.com/watch?v=QsL3omABs3Y&t=22s
 
 
 ![boy01_normal 1](https://user-images.githubusercontent.com/42282006/53843286-e3f64c80-3f6f-11e9-9328-e2706a02ed77.jpg)
+
+
+![full](https://user-images.githubusercontent.com/42282006/53843405-3f283f00-3f70-11e9-8178-c410a5722610.PNG)
