@@ -4,3 +4,4 @@ Vuforia and Unity platform make ease the use of augmented reality. In this Repos
 YouTube Channel:
 https://www.youtube.com/watch?v=QsL3omABs3Y&t=22s
 
+https://github.com/leonhash/Augmented-Reality-using-Vuforia/issues/1#issue-417533706 
